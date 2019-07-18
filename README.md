@@ -1,5 +1,8 @@
 # all_names_br   by Anakein
 
+@Anakein @w4fz5uck5 @zc00l
+
+
 Source:  
 
 First names
