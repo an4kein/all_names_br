@@ -1,4 +1,4 @@
-# all_names_br   by Anakein   (Team Watchers)
+# all_names_br   by Anakein   (Watchers Team)
 
 @Anakein @w4fz5uck5 @zc00l
 
